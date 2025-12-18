@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a college student at CS field pursuing Dev., CyS & DS & LOTS MORE 😉
+I'm a CS Student pursing Dev., CyS & DS & LOTS MORE. I Love to Learn & Try New Stuffs and Enhance my Experience to Grow Better 😉
 
 
 ## 🌐 Socials:
